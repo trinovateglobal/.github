@@ -1,1 +1,0 @@
-# Trinovate Gloabl
